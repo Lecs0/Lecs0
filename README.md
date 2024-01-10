@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Lecs0
+- 👀 I’m interested in IT
+- 🌱 I’m currently learning Coding
+- 📫 How to reach me discord -> LecsoMLGG
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: Yeah
